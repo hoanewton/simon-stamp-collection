@@ -3,4 +3,4 @@ Simon's Stamp Collection App
 
 #About Simon
 
-Stuff about Simon's Stamp here...
+New York Times Raves is the best collectiong ever in ages.
